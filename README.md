@@ -1,1 +1,0 @@
-# Store-Sharing-DV-Analysis
